@@ -1,0 +1,2 @@
+# Mariajulia1a
+PENSAMENTO COMPUTACIONAL
